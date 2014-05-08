@@ -42,8 +42,9 @@ Mastered and creative confrontation principle: because everyone is destined to e
 Ensuing from these principles are:
 
 ### MORAL CONSIDERATIONS
-* What every individual is entitled to hope for is to see him or herself recognised with equal dignity with all other human beings, to reach sufficient material conditions to realise his or her vision of a good life, whilst respecting other people’s views.
-*What every individual is not allowed to in turn is overbearing excessiveness (the Greek’s hubris), to violate the principle of common humanity and endanger common sociality.
+What every individual is entitled to hope for is to see him or herself recognised with equal dignity with all other human beings, to reach sufficient material conditions to realise his or her vision of a good life, whilst respecting other people’s views.
+
+What every individual is not allowed to in turn is overbearing excessiveness (the Greek’s hubris), to violate the principle of common humanity and endanger common sociality.
 
 In concrete terms, everyone’s duty is to fight against corruption.
 
