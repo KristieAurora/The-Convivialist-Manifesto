@@ -51,6 +51,7 @@ In concrete terms, everyone’s duty is to fight against corruption.
 From the Convivialist perspective, a state, government, or newly-formed political institution shall only be held as legitimate if:
 
 * They respect the four principles: of common humanity, common sociality, individuation and mastered confrontation, and if they help the implementation of moral, ecological and economical considerations which ensue from them.
+
 More specifically, legitimate states guarantee to the poorest of their citizens a minimum amount of resources, a minimum wage, in any form, which shelters them from the abjection of deprivation, and progressively prevents the richest, through the implementation of a maximum wage, from the abjection of extreme wealth to such a level which would neutralise the principles of common humanity and common sociality;
 
 ### ECOLOGICAL CONSIDERATIONS
